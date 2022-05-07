@@ -6,5 +6,5 @@ Open for discussion and recomendations from colleagues at different levels.
 
 Contacts:
 E-mail: msakharov1998@gmail.com
-Telegram: Sakharov98
-Instagram: saharov98
+<br>Telegram: Sakharov98
+<br>Instagram: saharov98
